@@ -10,4 +10,4 @@ hashtag: etiketki-yandexm
 **Заказать их можно у Нас:**
 * Whatsapp: +7 952 900 7779
 * Telegram: [t.me/Lakki88](https://t.me/Lakki88)
-* Email: [etiketkishop.ru@gmail.com](mail:etiketkishop.ru@gmail.com)
+* Email: [etiketkishop.ru@gmail.com](mailo:etiketkishop.ru@gmail.com)
