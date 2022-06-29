@@ -41,3 +41,9 @@ hashtag: etiketki-razmery
 * 27х16 мм
 * 30х20 мм
 * 40х30 мм
+
+
+**Заказать их можно у Нас:**
+* Whatsapp: +7 952 900 7779
+* Telegram: [t.me/Lakki88](https://t.me/Lakki88)
+* Email: [etiketkishop.ru@gmail.com](mailto:etiketkishop.ru@gmail.com)
