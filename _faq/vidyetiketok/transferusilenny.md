@@ -52,3 +52,8 @@ hashtag: transferusilenny
 **Начальная адгезия (липкость):** Высокая, Очень высокая - в зависимости от типа клея
  
 **Конечная адгезия (липкость):** Высокая, Очень высокая - в зависимости от типа клея
+
+**Заказать их можно у Нас:**
+* Whatsapp: +7 952 900 7779
+* Telegram: [t.me/Lakki88](https://t.me/Lakki88)
+* Email: [etiketkishop.ru@gmail.com](mailto:etiketkishop.ru@gmail.com)
